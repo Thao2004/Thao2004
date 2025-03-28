@@ -9,4 +9,4 @@ Hey there! I’m Thao, but my friends call me Jennifer. I’m a Computer Science
 - ☕ Runs on **coffee, boba, late-night coding, and an unreasonable number of browser tabs**  
 - 🎮 Loves **brainstorming new projects, trying out emerging tech, and the occasional video game**  
 
-Always excited to **collaborate, code, and create something awesome**—let’s connect! 😃🚀  
+Always excited to **collaborate, code, and create something awesome**—let’s connect via [LinkedIn](https://www.linkedin.com/in/thaonguyen-jennifer/)! 😃🚀  
